@@ -48,4 +48,4 @@ Restrictions on our rights became a strong impetus to a new wave of corruption. 
 
 Slavery remains slavery. It doesn't matter that it is legal, consider that in all societies where slavery existed, it was legal.
 
-I think that the trust is the real engine for modern relations between government and society and this can do more than forced labor, limited rights and discrimination. We need real Freedom.
+I think that the trust is the real engine for modern relations between government and society and this can do more than forced labor, limited rights and discrimination. We need real Freedom. We are fighting for freedom.
