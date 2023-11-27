@@ -1,5 +1,6 @@
 # Important Notice :warning:
-### The part about kremlin organized criminal group intervention into Ukraine
+
+## The part about kremlin organized criminal group intervention into Ukraine
 
 I was walking down the street when a rocket landed next to me. Some time ago it was simply unbelievable, now destruction of my city and killing of civilians is my reality. The kremlin organized criminal group has usurped power in Russia and now is destroying my country - Ukraine.
 
@@ -13,7 +14,8 @@ I was walking down the street when a rocket landed next to me. Some time ago it 
 
 If you are a responsible citizen of Russia, you are personally guilty of this. Stop it. If you are an irresponsible resident of Russia, just ignore this message.
 
-### The part about limited rights in my country
+
+## The part about limited rights in my country
 
 This part has been written at 2023/11.
 
