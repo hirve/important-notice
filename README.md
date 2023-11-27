@@ -13,6 +13,16 @@ I was walking down the street when a rocket landed next to me. Some time ago it 
 
 If you are a responsible citizen of Russia, you are personally guilty of this. Stop it. If you are an irresponsible resident of Russia, just ignore this message.
 
-### The part about slavery in my country
+### The part about limited rights in my country
 
-This part has been writen at 2023/11. Instead of emphasis on the idea, that we are fightting for freedom, our government had closed borders for men to keep them inside the country as potential soldiers.
+This part has been written at 2023/11.
+
+Instead of emphasis on the idea, that we are fighting for freedom, our government had closed borders for men to keep them inside the country as potential soldiers. Formally, it is legal according to the **European Convention on Human Rights**, but it's still a rights limiting.
+
+The fact that an innocent person is limited in movement is a strong demotivating factor. The fact that a group of people has limited rights is real discrimination.
+
+Restrictions on our rights became a strong impetus to a new wave of corruption. This provoked an incredible sense of injustice in some parts of society. 
+
+Slavery remains slavery. It doesn't matter that it is legal, consider that in all societies where slavery existed, it was legal.
+
+I think that the trust is the real engine for modern relations between government and society and this can do more than forced labor, limited rights and discrimination.
