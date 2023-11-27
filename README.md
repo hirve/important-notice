@@ -19,28 +19,7 @@ This part has been written at 2023/11.
 
 Instead of emphasis on the idea, that we are fighting for freedom, our government had closed borders for men to keep them inside the country as potential soldiers. Formally, it is legal according to the **European Convention on Human Rights**, but it's still a rights limiting.
 
-```
-ARTICLE 4
-
-Prohibition of slavery and forced labour
-
-1. No one shall be held in slavery or servitude.
-2. No one shall be required to perform forced or compulsory labour.
-3. For the purpose of this Article the term “forced or compulsory labour”
-  shall not include:
-    (a) any work required to be done in the ordinary course of
-    detention imposed according to the provisions of Article5
-    of this Convention or during conditional release from
-    such detention;
-    (b) any service of a military character or, in case of
-    conscientious objectors in countries where they are
-    recognised, service exacted instead of compulsory
-    military service;
-    (c) any service exacted in case of an emergency or calamity
-    threatening the life or well-being of the community;
-    (d) any work or service which forms part of normal civic
-    obligations.
-```
+<img src="https://github.com/hirve/important-notice/blob/main/echr-art-4.png" alt="ECHR Article 4" width="50%">
 
 The fact that an innocent person is limited in movement is a strong demotivating factor. The fact that a group of people has limited rights is real discrimination.
 
