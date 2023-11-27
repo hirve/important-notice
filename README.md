@@ -21,7 +21,7 @@ Instead of emphasis on the idea, that we are fighting for freedom, our governmen
 
 The fact that an innocent person is limited in movement is a strong demotivating factor. The fact that a group of people has limited rights is real discrimination.
 
-Restrictions on our rights became a strong impetus to a new wave of corruption. This provoked an incredible sense of injustice in some parts of society. 
+Restrictions on our rights became a strong impetus to a new wave of corruption. This provoked an incredible sense of injustice in some parts of society. Participants of corruption schemes who have money and are ready to act illegally have gone abroad.
 
 Slavery remains slavery. It doesn't matter that it is legal, consider that in all societies where slavery existed, it was legal.
 
