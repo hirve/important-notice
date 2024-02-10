@@ -23,6 +23,10 @@ Instead of emphasis on the idea, that we are fighting for freedom, our governmen
 
 <img src="https://github.com/hirve/important-notice/blob/main/echr-art-4.png" alt="ECHR Article 4" width="50%">
 
+Translation from the official language into human-understandable language:
+
+> Slavery is not slavery <sup>[1984]</sup>
+
 The fact that an innocent person is limited in movement is a strong demotivating factor. The fact that a group of people has limited rights is real discrimination.
 
 Restrictions on our rights became a strong impetus to a new wave of corruption. This provoked an incredible sense of injustice in some parts of society. Participants of corruption schemes who have money and are ready to act illegally have gone abroad. And the representatives of the authorities themselves have an unlimited opportunity to leave the country.
