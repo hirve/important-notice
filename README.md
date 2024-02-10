@@ -17,7 +17,7 @@ If you are a responsible citizen of Russia, you are personally guilty of this. S
 
 ## The part about limited rights in my country
 
-This part has been written at 2023/11.
+This part has been written in 2023/11.
 
 Instead of emphasis on the idea, that we are fighting for freedom, our government had closed borders for men to keep them inside the country as potential soldiers. Formally, it is legal according to the **European Convention on Human Rights**, but it's still a rights limiting.
 
