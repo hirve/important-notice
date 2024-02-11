@@ -23,6 +23,9 @@ Zamist togo, śzob nagołošuwaty na ideї, śzo my boremosia za swobodu, naš u
 
 <img src="https://github.com/hirve/important-notice/blob/main/echr-art-4.png" alt="ECHR Article 4" width="50%">
 
+Perewodżu z oficijnoї mowy na zwyčajnu:
+> Prymusowa pracia ne je prymusowoju praceju <sup>[1984]</sup>.
+
 Te, śzo newynna ludyna obmeżena w peresuwanni, je sylnym demotywujućym faktorom. Te, śzo grupa ludej maje obmeżeni prawa, je sprawżnioju dyskryminacijeju.
 
 Obmeżennia našyh praw stało sylnym poštowhom do nowoї hwyli korupciї. Ce sprowokuwało nejmowirne widćuttia nesprawedływosti w dejakyh ćastynah suspilstwa. Za kordon wyїhały ućasnyky korupcijnyh shem, jaki majut groši ta gotowi dijaty protyzakonno. A sami predstawnyky włady majut neobmeżenu możływist załyšyty kraїnu.
