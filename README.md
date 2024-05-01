@@ -31,6 +31,8 @@ The fact that an innocent person is limited in movement is a strong demotivating
 
 Restrictions on our rights became a strong impetus to a new wave of corruption. This provoked an incredible sense of injustice in some parts of society. Participants of corruption schemes who have money and are ready to act illegally have gone abroad. And the representatives of the authorities themselves have an unlimited opportunity to leave the country.
 
-Slavery remains slavery. It doesn't matter that it is legal, consider that in all societies where slavery existed, it was legal.
+## Slavery remains slavery
+
+It doesn't matter that it is legal, consider that in all societies where slavery existed, it was legal.
 
 I think that the Trust is the real engine for modern relations between government and society and this can do more than forced labor, limited rights and discrimination. We need real Freedom. We are fighting for Freedom.
